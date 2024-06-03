@@ -13,4 +13,5 @@ lucinetedota@prof.educacao.sp.gov.br
 
 @luudota
 
-![](https://tenor.com/pt-BR/view/amor-da-minha-vida-gif-27547650)
+![](https://media.tenor.com/U07Nn6x8akkAAAAj/amor-da-minha-vida.gif)
+
